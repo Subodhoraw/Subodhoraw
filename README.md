@@ -138,7 +138,7 @@ As a Data Analyst, my job is to find the signal in the noise — clean, model, v
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-Subodh_Oraw-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://linkedin.com/in/subodh-oraw-b4869a371)
 [![Phone](https://img.shields.io/badge/Mobile-%2B91_7478826779-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](tel:+917478826779)
 
-📍 Balurghat, West Bengal, India &nbsp;·&nbsp; 💰 Expectation: 6–8 LPA &nbsp;·&nbsp; 🟢 Open to Work
+📍 Hyderabad, Telangana, India &nbsp;·&nbsp; 💰 Expectation: 6–8 LPA &nbsp;·&nbsp; 🟢 Open to Work
 
 </div>
 
